@@ -1,5 +1,5 @@
 ## Each list is in order of what I want/like the most 
-**1. being I love it so much omg I need this**
+***1. => I love it so much omg I need this***
 
 Combo/Item Preferences
 1. One selection from Tops and one selection from Bottoms
