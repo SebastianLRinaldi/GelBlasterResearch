@@ -1,16 +1,12 @@
+## Each list is in order of what I want/like the most 
+(1. being I love it so much omg I need this)
+
 Combo/Item Preferences
 1. One selection from Tops and one selection from Bottoms
 2. Something from Hoodies and Something from Bottoms
 3. Any one of the Bottoms
 4. Any one of the Hoodies
 5. Any one of the Tops
-
-
-
-Each list is in order of what I want/like the most 
-(1. being I love it so much omg I need this)
-
-
 
 BOTTOMS
 1. [Classic 172 Black Pants– Niepce - size:L](https://niepceinc.com/collections/bottoms/products/ap-p172)
