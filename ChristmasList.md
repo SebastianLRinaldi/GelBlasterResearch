@@ -1,7 +1,7 @@
 Combo/Item Preferences
 1. One selection from Tops and one selection from Bottoms
-2. Something from hoodies and Something from  bottoms
-3. Any one of the bottoms
+2. Something from Hoodies and Something from Bottoms
+3. Any one of the Bottoms
 4. Any one of the Hoodies
 5. Any one of the Tops
 
