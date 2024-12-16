@@ -1,9 +1,9 @@
 Combo Preferences 
 1. One selection from Tops and one selection from Bottoms
 2. Something from hoodies and Something from  bottoms
-3. Anything bottoms
-4. Anything from Tops
-5. Anything from Hoodies 
+3. Any one of the bottoms
+4. Any one of the Tops
+5. Any one of the Hoodies 
 
 
 Each list is in order of what I want/like the most 
