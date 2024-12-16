@@ -2,7 +2,7 @@ Combo Preferences
 1. One selection from Tops and one selection from Bottoms
 2. Something from hoodies and Something from  bottoms
 3. Anything bottoms
-4. Anything from the Tops
+4. Anything from Tops
 5. Anything from Hoodies 
 
 
